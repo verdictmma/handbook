@@ -1,6 +1,6 @@
 # What Influenced Us
 
-If you want to learn the Verdict view of the world, it helps to know the influences that helped form it. Verdict, and 37signals before it, has been around since 1999. Since then there’s been a number of key influencers that have marked the company culture.
+If you want to learn the Verdict view of the world, it helps to know the influences that helped form it.
 
 ## Books
 

@@ -10,4 +10,4 @@ Working from home all the time isn’t everyone’s cup of coffee. Thus, in the 
 
 ## From a coworking space
 
-If working from home or from a coffee shop doesn’t suit you, then trying a coworking space might just do the trick. Verdict offers a $200/month stipend towards a desk in such a place.
+If working from home or from a coffee shop doesn’t suit you, then trying a coworking space might just do the trick. Verdict doesn't offer a stipend at the moment but may be open to a stipend in the future.
